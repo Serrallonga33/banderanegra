@@ -1,0 +1,11 @@
+Manfiest Bandera Negra
+
+El poble català ha estat per molts anys menyspreat. S'ha tractat de treure'ns els nostres drets des de temps immemorables, amb el Decret de Nova Planta i amb les dictadures com la de Primo de Rivera o la de Francisco Franco. La nostra llengua ha estat objectiu d'eliminació, igual que la nostra cultura i tradicions, és l'hora que els Catalans ens rebel·lem contra l'Estat opressor. Espanya poc a poc ens ha conquerit, igual que la immigració, la població catalana autentica ha començat a desaparèixer i poc a poc està sent substituïda per persones amb 0 coneixements sobre la història de la nostra terra i amb un interès nul per aprendre-la. Aquests "falsos catalans" no només s'estan apropiant de la nostra terra, sinó que estan aconseguint que seguir les nostres tradicions i continuar parlant la nostra llengua sigui un fet estrany en la nostra casa.
+
+Bandera Negra pretén canviar això. Pretén ajuntar als catalans amb estima per la seva terra i posar-los tots sota la nostra bandera, unir forces per demostrar al món que no estem sols i que estem preparats per aconseguir ésser un estat independent i sense colonitzadors que ens prohibeixin el que és nostre. L'agrupació vol organitzar activitats conjuntes entre membres a la natura catalana (Com ara acampades a l'aire lliure, senderisme, muntanyisme...), vol també conscienciar al poble català del perill que pot suposar que no es faci un canvi immediat mitjançant propaganda i vol promoure la cultura, tradicions i llengua catalana mitjançant l'ús de llocs web on es pugui publicar contingut en català i conèixer a gent amb la mateixa ideologia.
+
+És important mentalitzar-se del perill que suposa tenir colonitzadors i una immigració no controlada a la nostra terra. La nostra llengua s'està perdent, la nostra cultura s'està perdent, les nostres tradicions s'estan perdent, i l'unica cosa que està augmentant són els impostos que hem de pagar, les violacions als nostres carrers i l'alt nivell de criminalitat que cada dia va en ascendència. Fem fora a aquells que no són catalans i només fan que tacar la nostra imatge.
+
+Hem de crear un Estat on els ciutadans ens sentim segurs, on puguem parlar sense por que ens censurin i on puguem ser catalans com som sense que ningú ens miri malament.
+
+Glòria i honor per al poble català. No hi ha ningú que ens pugui callar. Força Bandera Negra.
